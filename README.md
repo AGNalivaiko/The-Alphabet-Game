@@ -1,1 +1,1 @@
-https://AGNalivaiko.github.io/The-Alphabet-Game/index/
+https://AGNalivaiko.github.io/The-Alphabet-Game
